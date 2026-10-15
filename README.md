@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HUDC810826MCHRVR08
+HUDC810826MCHRVR08
